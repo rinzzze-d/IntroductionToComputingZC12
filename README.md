@@ -1,4 +1,3 @@
-Batang Ina lyrics 
 Maagang nagkapamilya, 👨‍👩‍👧
 Maagang nagkaanak, 🤱
 Mga bobong tao 🧟
