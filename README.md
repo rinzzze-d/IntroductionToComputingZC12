@@ -10,5 +10,3 @@ Pangit man kung titignan 👥
 dahil bata ang edad ⁉️
 Atleast 'di tinalikuran 🙇‍♀️
 ang responsibilidad 🧍‍♀️
-All reactions:
-8
